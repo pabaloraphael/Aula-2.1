@@ -1,3 +1,4 @@
 Tom Cruz
-Brad Pit
+Wesley Snipes
 Wagner Moura
+Antonio Fagundes
